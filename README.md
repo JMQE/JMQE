@@ -1,4 +1,4 @@
-- # ***✧Hi, I’m JMQE***
+- # ***✧Hi, I’m @JMQE***
 1.（＾ｖ＾）I’m interested in ... *cybersecurity and Ai applications for everyday life*
 - ヽ（´∀｀）ノ I’m currently learning ... *independent coding asset work*
 - (｡ŏ_ŏ)I’m looking to collaborate on ... *national security*
