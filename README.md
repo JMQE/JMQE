@@ -1,5 +1,5 @@
 - # ***✧Hi, I’m @JMQE***
-~to busy to update main linktree, use the one in the md~
+-~to busy to update main linktree, use the one in the md~
 1.（＾ｖ＾）I’m interested in ... *cybersecurity and Ai applications for everyday life*
 - ヽ（´∀｀）ノ I’m currently learning ... *independent coding asset work*
 - (｡ŏ_ŏ)I’m looking to collaborate on ... *national security*
